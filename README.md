@@ -35,106 +35,114 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A mysterye of inyquyte contayned within the heretycall genealogye of Ponce Pantolabus, is here both 
+
+1. The Preface.
+The Table.ABbotes hanged for treason. 31Antibaptystes & Papistes all one. 53Antichrist / what he is.
 #####Body#####
 
-1. A mysterye.1 The Genealogye
+1. ☜☜A mysterye of inyquite
+opened of Iohan Bale / by the
+manifes•acion of Ponce Pantolabus Genealogye
+of heresye / in the year of
+owr lorde. M.D. and. xlii.
+
+    _ A mysterye.1 The Genealogye
 of heresye.2 Compyled by Ponce Pantolabus
 ¶The openinge.
 
-1. A mysterye.1 Blynde obstynacye.2 Begate heresye.3 By a myschaunce4 Of dame ignoraunce.
+    _ A mysterye.1 Blynde obstynacye.2 Begate heresye.3 By a myschaunce4 Of dame ignoraunce.
 Malicia eorum excecauit eos. Sap. 2.
 ¶The openinge.
 
-1. A mysterye.1 Herefye begate.2 Stryfe and debate.3 Debate and ambycyon.4 Begate supersticyon.5 Odium suscitat rixas. Prouerb. 10.
+    _ A mysterye.1 Herefye begate.2 Stryfe and debate.3 Debate and ambycyon.4 Begate supersticyon.5 Odium suscitat rixas. Prouerb. 10.
 ¶The openinge. 1.
 
-1. A mysterye.1 Supersticion playne.
+    _ A mysterye.1 Supersticion playne.
 Begate disdayne.2 Dysdayne of trovvthe.
 Begate slovvthe.3 Slovvthe & sluggyshnesse.
 Begate vvylfulnesse.2 Vult & non vult piger. Prouer. 13.
 ¶The openinge. 1.
 
-1. A mysterye.1 Supersticion playne.
+    _ A mysterye.1 Supersticion playne.
 Begate disdayne.2 Dysdayne of trovvthe.
 Begate slovvthe.3 Slovvthe & sluggyshnesse.
 Begate vvylfulnesse.2 Vult & non vult piger. Prouer. 13.
 ¶The openinge. 1.
 
-1. A mysterye.1 Vvylfulnesse verelye.
+    _ A mysterye.1 Vvylfulnesse verelye.
 Nygh cosyne to heresye.2 Begate myschefe.
 Father of vvyclefe.3 Vvhich ded bringe inne.
 His grand father synne.4 Qui facit peccatum ex diabolo est, quoniam
 ab inicio diabolus peccat. Ioan. 3.
 The openinge. 1.
 
-1. A mysterye.1 After this brother.
+    _ A mysterye.1 After this brother.
 Came forth an other.2 His name to discusse.
 Menne called him husse.3 He and his cumpanye.
 Began in Germanye.4. He• est gens que non audiuit vocer•
 domini sui. Hiere. 2.
 The openinge. 1.
 
-1. A mysterye.1 And after that.
+    _ A mysterye.1 And after that.
 Came in a gnat.2 Of the same kynde.
 Vvhose sovvle is blynde.3 His name you shall here.
 Menne call him Luthere.
 ¶The openinge .1.
 
-1. A mysterye.1 He by his meane.
+    _ A mysterye.1 He by his meane.
 Hath bānyshed cleane.2 Out of that coste.
 The holye ghoste.3 And hath brought inne.
 Lyberte and synne.4 Posuerunt templū sanctum. Psal. 78.
 The openinge. 1.
 
-1. A mysterye.1 Next after him
+    _ A mysterye.1 Next after him
 Is his chefe lym.2 One Melanchtonus.
 Nequaquam bonus.
 3 Euanuerun• in cogitationibus sut•. 〈◊〉. •
 The openinge. 1.
 
-1. A mysterye.1 Next after this vvhelpe
+    _ A mysterye.1 Next after this vvhelpe
 Came in to helpe.2 One Oecolampadius / 
 Vvith his brother zvinglius.
 ¶The openinge. 1.
 
-1. A mysterye.1 These praters of dyuynite
+    _ A mysterye.1 These praters of dyuynite
 vvith their affynyte.
 hath sought about2 The vvorlde through out3 For vngracyou•e teachers
 to be their preachers.4 Conuenerunt in vnum aduersus dominum
 & aduersus Christum eius. psal. 2.
 The openinge. 1.
 
-1. ¶A mysterye1 And here in this londe
+    _ ¶A mysterye1 And here in this londe
 Certayne they fonde.2 Vvhich by and bye
 Dyd them applye.3 For to sett forth
 Thynges nothynge vvorth.4 And preached openlye
 Both treason and heresye.
 ¶The openinge. 1.
 
-1. A mysterye.1 The first captayne
+    _ A mysterye.1 The first captayne
 Of this false trayne.2 Vvas one Iohan Frith / 
 Vvhich had no pyth.3 Of lernynge nor vvytt
 Not vvorth a nytt.4. Via stulti recta in oculis eius. psal. 12.
 The openinge. 1.
 
-1. A mysterye.1 He dyd saye playne
+    _ A mysterye.1 He dyd saye playne
 There ded not remayne.2 Rya••ye present
 In the blessed sacrament.3 Os iusti pascitur imperitia. Pro. 15.
 ¶The openinge. 1.
 
-1. A mysterye.1 The flesshe and blood
+    _ A mysterye.1 The flesshe and blood
 And lyuelye food.2 And onlye vvelthe
 Of oure soule helthe.3 Qul manducat hunc panem, viuet in
 aeternum. Ioan. 6.
 ¶The openinge. 1.
 
-1. A mysterye.1 O braynelesse nodye
+    _ A mysterye.1 O braynelesse nodye
 Christ sayd my bodye2 Is verelye meate
 For manne to eate.3 Caro mea vere est cibus, &c. Ioan. 6.
 The openinge. 1.
 
-1. A mysterye.1 Vvhye vvist thu then / 
+    _ A mysterye.1 Vvhye vvist thu then / 
 Sett to thy penne.2 And so playnelye
 Christes vvordes denye / 3 Thy peuyshe pyld reasons
 Vvere not vvorthe .ii. peasons4Vvherfore in a •yre
@@ -142,33 +150,33 @@ Thu haddest thy hyre.5 Iuste patiebantur secundum suas nequitias.
 Sapien. 19.
 ¶The openinge. 1.
 
-1. A mysterye.1 Next of this secte
+    _ A mysterye.1 Next of this secte
 That vvas suspecte.2 Vvas one Lamberte
 A manne peruerte.3 And almost vvood.4 Probauerunt habere Deum in notitia,
 tradidit illos Deus in reprobum
 sensum. Rom. 1.
 ¶The openinge. 1.
 
-1. A mysterye.1 Vvhich vvolde make good.
+    _ A mysterye.1 Vvhich vvolde make good.
 Vvith tonge and penne.
 Before all menne.2 That in the Masse.
 Nothinge els vvas.3 But a signifycacion.
 Of Christes passion.4 Ne sis sapiens a pud te ipsum. Prou. 1.
 ¶The openinge. 1.
 
-1. A mysterye.1 And vtterlye
+    _ A mysterye.1 And vtterlye
 He ded denye.2 That Christ vnfayned
 Vvas there contayned.3 Both ryastye
 And substancyallye.4 Quotiescuncque manducabitis panem
 hunc▪ & calicem bibetis &c. 1. Cor. 10.
 The openinge. 1.
 
-1. A mysterye.• But lyke a fole
+    _ A mysterye.• But lyke a fole
 He vvas set at scole.• By a dyuyne
 For to declyne.3 This prono vvne hoc.4 Hoc est corpus meum. Matth. 26.
 ¶The openinge. 1.
 
-1. ¶Amysterye.1 But lyke a blocke.
+    _ ¶Amysterye.1 But lyke a blocke.
 He had nought to saye.
 Nother ye nor naye.2 Vvher for lyke a davve.
 He vvas iudged by the lavve.3 To be dravvne verelye.
@@ -176,26 +184,26 @@ And burned for heresye.
 4 Confuse sunt sapientes. Hiere. 3.
 ¶The openinge. 1.
 
-1. A mysterye.1 Next after him
+    _ A mysterye.1 Next after him
 Came in a lymme.2 Of Antichrist
 An Anabaptyst.3 One Peter Franke.4 Hi sunt fontes sine aqua, quibus caligo
 tenebrarum reseruatur. 2. Pet. 2.
 ¶The openinge. 1.
 
-1. A mysterye.1 Vvhich sayd full ranke.
+    _ A mysterye.1 Vvhich sayd full ranke.
 That Christ and God.
 Toke not manhode.2 Of Marye the virgine.
 Vvhich vvas vvithout synne3 Verbum caro factum est. Ioan. 1.
 ¶The openinge.
 
-1. A mysterye.1 Next after this
+    _ A mysterye.1 Next after this
 Came in yvvys.2 Barnes the blynde
 That neuer coude fynde.3 By nyght nor daye
 The ryght path vvaye4 To Christes lore.5 Qui peruersi cordis est, non inuenit
 bonum. Prouer. 17.
 ¶The openynge. 1.
 
-1. A mysterye.1 But euermore
+    _ A mysterye.1 But euermore
 By meane of ambycyon
 Ded so vve sedycyon.2 He sayd certayne
 In vvordes playne.3 It coude not be founde
@@ -203,7 +211,7 @@ In vvordes playne.3 It coude not be founde
 That vve vvere bounde.4 To be obedient.5 Vir apostara iurgia seminat. Sap. 6.
 The openinge. 1.
 
-1. A mysterye.1 To the commanndement.
+    _ A mysterye.1 To the commanndement.
 Of the hygh povvers
 At anye hovvres.2 On payne of synne
 But vvhat ded he vvynne.3 He vvas tyed at a poste.
@@ -211,56 +219,56 @@ And there ded roste.4 Onnis anima potestatibus subdita
 sit. Rom. 8.
 ¶The openinge .1.
 
-1. A mysterye.1 On his ryght syde
+    _ A mysterye.1 On his ryght syde
 Vvas also tyed.2 A brother of his
 One garretyvvys.3 Vna enim cachena tenebrarum colligati
 erant. Eccle. 17.
 ¶The openinge. 1.
 
-1. A mysterye.1 And on the lefte hande
+    _ A mysterye.1 And on the lefte hande
 One Hierome ded stande.2 One of that nest
 As blynde as the best.3 And thus they thre
 Novv burned be.4 Ipsi sibi grauiores tenebrae. Eccless. 17.
 ¶The openinge. 1.
 
-1. A mysterye.1 I feare me sore
+    _ A mysterye.1 I feare me sore
 There vvyll come more.2 Vnto that ende
 Except they amende.3 Vix corriguntur impij. Eccle. 1.
 ¶The openinge. 1.
 
-1. A mysterye.1 For vvithout doubte
+    _ A mysterye.1 For vvithout doubte
 There is a rovvte.2 Of these same slepers
 And corner crepers.3 That vere a fayre face
 In euerye place.4 Multos enim supplantauit nequitia illorum.
 Sap. 19.
 The openinge. 1.
 
-1. A mysterye.1 yet are they as frovvarde
+    _ A mysterye.1 yet are they as frovvarde
 And as vnto vvarde.2 As the other vvere
 Of vvhom ye ded here.3 For vvithout doubt
 It vvill not out.4 That is bred by the bone.
 ¶The openynge. 1.
 
-1. A mysterye.1 For though they be gone.
+    _ A mysterye.1 For though they be gone.
 yet is there behinde
 That are as blynde.2 As the other before
 Vvhich kepe in store.3 Full close and pryuelye
 Their cankered heresye.4 Stultorum infinitus est numerus. Eccles•. 1.
 ¶The openinge. 1.
 
-1. A mysterye.1 But I praye God
+    _ A mysterye.1 But I praye God
 To spare the rod.2 And that vvith hart
 They maye conuert.3 And call for grace
 Vvhyle they haue space.4 Dum lucem habetis, credite in lucem,
 vt filij lucis sitis. Ioan. 12.
 ¶The openinge. 1.
 
-1. A mysterye.1 And for this tyme
+    _ A mysterye.1 And for this tyme
 Here endeth my ryme.2 The Genealogye.
 Of stynkynge heresye.
 ¶The openinge. 1.
 
-1. A mysterye.1 Vvherin I requyre.
+    _ A mysterye.1 Vvherin I requyre.
 And humblye desyre.2 All menne y vvys.
 That shall rede this.3 Aboue all thinge.
 To praye for our kynge.4 Domine in virtute tua letabitur rex,
@@ -268,14 +276,14 @@ To praye for our kynge.4 Domine in virtute tua letabitur rex,
 Psal. 20.
 ¶The openinge. 1.
 
-1. A mysterye.1 And the quene also
+    _ A mysterye.1 And the quene also
 Vvhere so euer she go.2 And for the sauegarde
 Of oure prince Edvvarde.3 Vvhom I praye Iesu
 Longe to contyne vve / 
 Amen.
 The openinge. 1.
 
-1. A mysterye.1 Cōpyled by Ponce Pātolabus2 Imprynted at London
+    _ A mysterye.1 Cōpyled by Ponce Pātolabus2 Imprynted at London
 In Pater noster rovve.3 At the signe of our ladye pytye
 By Iohan Redman
 Ad imprimendum solum.
